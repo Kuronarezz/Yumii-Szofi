@@ -5,6 +5,6 @@
 - pls do NOT copy my skins even if u do ad credits ty
 - my pookie @sukuxey !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 - also im playing skullgirls and Curiosity Tour:Voyage, user:  Wandererlover, my skullgirls user is: manaona
-- I ALSO LOVE MY BF DAVIDSONNNNNN 
+- I ALSO LOVE MY BF SM, DAV.
 
 
