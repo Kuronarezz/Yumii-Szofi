@@ -7,7 +7,4 @@
 - also im playing skullgirls and Curiosity Tour:Voyage, user:  Wandererlover, my skullgirls user is: manaona
 - I ALSO LOVE MY BF DAVIDSONNNNNN 
 
-<!---
-Yumii-Szofi/Yumii-Szofi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
