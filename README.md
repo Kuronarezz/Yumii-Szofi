@@ -4,7 +4,7 @@
 - love my friends also like to make friends pls be my friendo
 - pls do NOT copy my skins even if u do ad credits ty
 - my pookie @sukuxey !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-- also im playing skullgirls and mlbb my skullgirls user is: manaona
+- also im playing skullgirls and Curiosity Tour:Voyage, user:  Wandererlover, my skullgirls user is: manaona
 - 
 
 <!---
