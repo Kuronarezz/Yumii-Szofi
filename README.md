@@ -8,3 +8,8 @@
 -im literally Kurona Ranze !! .-🦈
 i also follow back! i really apreacite it if u follow me ! 💕
 
+
+
+
+![3faf35639dbedb9203b9b409a39ffafb](https://github.com/user-attachments/assets/e75d4fe3-df6a-45e4-bdfc-6273f52e0f39)
+
