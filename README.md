@@ -7,6 +7,7 @@
 - I ALSO LOVE MY BF SM, DAV.
 -im literally Kurona Ranze !! .-🦈
 i also follow back! i really apreacite it if u follow me !
+
 ![tumblr_6a1751efc09918a141f8ea4ee56e2a47_83d5b006_1280](https://github.com/user-attachments/assets/ed8a3065-107d-4aac-bbcf-e4f247df42b8)  this is literally me and @tayzies !! sillies
 
 
