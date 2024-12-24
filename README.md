@@ -8,7 +8,7 @@
 -im literally Kurona Ranze !! .-🦈
 i also follow back! i really apreacite it if u follow me !
 
-![7a5c41122afdcdf25848a84dcf6c968f](https://github.com/user-attachments/assets/91a18b28-8dc4-4ca0-8f68-ec1d07b9530a) HAPPY XMAS EVERYBODY .- !!!!!
+![7a5c41122afdcdf25848a84dcf6c968f](https://github.com/user-attachments/assets/91a18b28-8dc4-4ca0-8f68-ec1d07b9530a) MERRY XMAS EVERYBODY .- !!!!!
 
 
 
