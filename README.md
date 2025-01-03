@@ -9,7 +9,8 @@
 -im literally Kurona Ranze !! .-🦈
 i also follow back! i really apreacite it if u follow me !
 
-![kurona-kurona-ranze](https://github.com/user-attachments/assets/550a9b30-0634-43cf-8169-eb3a9d187cbc) literally my pook :3
+![507692f75a189536561af64c20a6222e](https://github.com/user-attachments/assets/3ddd63d9-3096-458d-8a64-70f6c4d587bb)  
+
 
 
 
